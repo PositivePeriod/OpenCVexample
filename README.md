@@ -1,0 +1,1 @@
+All photos in data is from pixabay and free from copyright.
